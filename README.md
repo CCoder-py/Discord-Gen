@@ -1,2 +1,2 @@
 # Discord-Gen
-Discord Nitro Gen
+Hello user thank you for downloading my application.
